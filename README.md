@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ltnotfty
-- 👀 I’m interested in Beatiful Girl.
+- 👀 I’m interested in Computer Graphic.
 - 🌱 I’m currently learning OS.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (ltnotfty@126.com)...
